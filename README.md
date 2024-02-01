@@ -2,4 +2,4 @@
 
 This is the official site of our fundraiser
 
-Expect more information soon.
+Expect information to update the file.
